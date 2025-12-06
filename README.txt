@@ -1,0 +1,1 @@
+Códigos usados no TCC (comentados com uso de IA)
